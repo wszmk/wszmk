@@ -1,3 +1,3 @@
 ### Hi.
 
-The home is "wszmk" domain:[None](https:\\暂时没有.dee.al)
+The home is "nodecn" domain:[](https:\\www.)
