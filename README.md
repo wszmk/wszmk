@@ -1,4 +1,4 @@
 ### Hi.
 
-The home is "zmk" domain:[cmds](https:\\www.cmds.eu.org)
+The  domain:[pages](https:\\www.zmk.js.cool\404.html\)
 
